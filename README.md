@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Niki Giri
 
-NIM : 
+NIM : 607062400058
 
 ## Instruksi
 
